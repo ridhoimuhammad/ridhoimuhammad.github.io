@@ -1,2 +1,2 @@
-###ridhoimuhammad/ridhoimuhammad.github.io###
+###ridhoimuhammad.github.io###
 
